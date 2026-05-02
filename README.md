@@ -29,3 +29,11 @@ This project was created as part of a GitHub collaboration assignment for our In
 - Keep your notes and materials organized by class.
 - Check your syllabus often for important deadlines.
 - Stay ahead on assignments to avoid last-minute stress.
+
+## Additional Tips
+- Take advantage of campus resources like tutoring centers and advising. CAE Center of Academic Excellence
+- Stay connected with classmates to share notes and support each other.
+- Maintain a healthy balance between school, work, and personal life.
+
+## Conclusion
+Success in college comes from consistency, organization, and using the resources available to you. By applying these tips, students can improve their academic performance and overall experience.
